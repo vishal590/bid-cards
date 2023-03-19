@@ -58,8 +58,8 @@ Finally, the use of the Overline network's custom-built cross-chain protocol all
 
 [https://chainblock.hashnode.dev/what-is-overline-metaverse-oland](https://chainblock.hashnode.dev/what-is-overline-metaverse-oland)
 
-[https://overline-metaverse.blogspot.com/2023/03/overline-metaverse-future-of-blockchain.html](https://overline-metaverse.blogspot.com/2023/03/overline-metaverse-future-of-blockchain.html)
+[https://overlinemetaverse.blogspot.com/2023/03/overline-metaverse-future-of-blockchain.html](https://overline-metaverse.blogspot.com/2023/03/overline-metaverse-future-of-blockchain.html)
 
-[https://overline-metaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html](https://overline-metaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html)
+[https://overlinemetaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html](https://overline-metaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html)
 
 [https://chainblock.hashnode.dev/how-to-earn-money-through-overline-network-metaverse-a-comprehensive-guide](https://chainblock.hashnode.dev/how-to-earn-money-through-overline-network-metaverse-a-comprehensive-guide)
