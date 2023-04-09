@@ -15,9 +15,9 @@ tags: blockchain, crypto, cryptocurrency, nft, metaverse
 
 👇👇👇👇👇👇
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
 
 ✨One of the key advantages of Ethereum is its flexibility. Its ability to create smart contracts allows developers to create complex applications that can execute code in a decentralized way. This means that we can create applications that are resistant to censorship and tampering, as they are stored on the blockchain and can be verified by anyone.
 
@@ -27,9 +27,9 @@ tags: blockchain, crypto, cryptocurrency, nft, metaverse
 
 👇👇👇👇👇👇
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
 
 ✨ Some of the topics we cover on this server include:
 
@@ -46,6 +46,6 @@ tags: blockchain, crypto, cryptocurrency, nft, metaverse
 
 👇👇👇👇👇👇
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
 
-**Discord Link** - [https://discord.gg/a4KbpYFjrw](https://discord.gg/a4KbpYFjrw)
+**Discord Link** - [https://discord.gg/3XCdSbMS5U](https://discord.gg/3XCdSbMS5U)
