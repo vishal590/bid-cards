@@ -1,6 +1,6 @@
 ---
 title: "Get Free Land in BlueMoon Metaverse"
-seoTitle: "Start Your Adventure in BlueMoon Metaverse with Free oLand - Join Now"
+seoTitle: "Start Your Adventure in BlueMoon Metaverse with Free Land - Join Now"
 datePublished: Fri Apr 07 2023 11:50:58 GMT+0000 (Coordinated Universal Time)
 cuid: clg6hk8uh00040al0ckqz93bd
 slug: get-free-land-in-bluemoon-metaverse
