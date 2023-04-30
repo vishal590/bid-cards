@@ -64,6 +64,8 @@ The Overline network metaverse is designed to be flexible, which means that it c
 
 **Read More:**
 
+[https://ethereumblockchain.hashnode.dev/join-the-ethereum-dev-channel-on-discord-and-connect-with-the-community](https://ethereumblockchain.hashnode.dev/join-the-ethereum-dev-channel-on-discord-and-connect-with-the-community)
+
 [https://overlinemetaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html](https://overlinemetaverse.blogspot.com/2023/03/what-are-emblems-in-overline-network.html)
 
 [https://overlinemetaverse.blogspot.com/2023/03/overline-coin-native-cryptocurrency-of.html](https://overlinemetaverse.blogspot.com/2023/03/overline-coin-native-cryptocurrency-of.html)
