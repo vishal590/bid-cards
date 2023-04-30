@@ -36,3 +36,7 @@ It’s Free giveaway until minting date.
 [Referral Link 👇👇](https://bit.ly/3S04BC0)
 
 [https://bit.ly/3S04BC0](https://bit.ly/3S04BC0)
+
+**Read More:**
+
+[https://ethereumblockchain.hashnode.dev/join-the-ethereum-dev-channel-on-discord-and-connect-with-the-community](https://ethereumblockchain.hashnode.dev/join-the-ethereum-dev-channel-on-discord-and-connect-with-the-community)
