@@ -16,9 +16,9 @@ In a rapidly evolving digital landscape, BlueMoon Metaverse stands out as a trul
 
 At the heart of [BlueMoon Metaverse](https://bluemoon.io/?ref=4YN0A) lies a creative sandbox, providing users with the tools and resources to bring their imagination to life. With an extensive suite of creation tools, individuals can design and build their own virtual spaces, from stunning architectural marvels to whimsical fantasy realms. The flexibility and ease of use of BlueMoon Metaverse's creation tools empower users to express their creativity without limitations.
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
 **Thriving Economy: Trade, Commerce, and Entrepreneurship**
 
@@ -28,9 +28,9 @@ At the heart of [BlueMoon Metaverse](https://bluemoon.io/?ref=4YN0A) lies a crea
 
 Beyond its immersive environments and economic potential, BlueMoon Metaverse is a hub for social interaction. Users can connect with friends, engage in social events, and participate in collaborative projects. The metaverse serves as a meeting place for individuals from around the world, transcending physical boundaries and allowing for cultural exchange and shared experiences. Whether it's attending virtual concerts, participating in community-driven initiatives, or simply socializing in virtual hangouts, BlueMoon Metaverse fosters a sense of belonging and community.
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
 **Exploration and Adventure: Uncover the Wonders of BlueMoon Metaverse**
 
@@ -48,9 +48,9 @@ One of the defining characteristics of BlueMoon Metaverse is its cross-platform 
 
 BlueMoon Metaverse prioritizes the safety and security of its users. By implementing robust measures to prevent fraud, protect personal information, and combat harassment, the metaverse fosters a welcoming and secure environment for all participants. BlueMoon Metaverse's commitment to maintaining trust and ensuring user safety contributes to a positive and enjoyable experience for everyone.
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
-**✨Get Free Plot of NFT Land** - [https://bluemoon.io/?ref=4YN0A](https://bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
 **Future Expansion: Pushing the Boundaries of the Metaverse**
 
