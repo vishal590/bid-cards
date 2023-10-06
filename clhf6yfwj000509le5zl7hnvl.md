@@ -16,9 +16,9 @@ In a rapidly evolving digital landscape, BlueMoon Metaverse stands out as a trul
 
 At the heart of [BlueMoon Metaverse](https://bluemoon.io/?ref=4YN0A) lies a creative sandbox, providing users with the tools and resources to bring their imagination to life. With an extensive suite of creation tools, individuals can design and build their own virtual spaces, from stunning architectural marvels to whimsical fantasy realms. The flexibility and ease of use of BlueMoon Metaverse's creation tools empower users to express their creativity without limitations.
 
-**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
+**✨Get Free Plot of NFT Land** :
 
-**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
+%[https://waitlist.bluemoon.io/?ref=4YN0A] 
 
 **Thriving Economy: Trade, Commerce, and Entrepreneurship**
 
@@ -30,7 +30,7 @@ Beyond its immersive environments and economic potential, BlueMoon Metaverse is 
 
 **✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
-**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
+%[https://waitlist.bluemoon.io/?ref=4YN0A] 
 
 **Exploration and Adventure: Uncover the Wonders of BlueMoon Metaverse**
 
@@ -50,7 +50,7 @@ BlueMoon Metaverse prioritizes the safety and security of its users. By implemen
 
 **✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
 
-**✨Get Free Plot of NFT Land** - [https://waitlist.bluemoon.io/?ref=4YN0A](https://waitlist.bluemoon.io/?ref=4YN0A)
+%[https://waitlist.bluemoon.io/?ref=4YN0A] 
 
 **Future Expansion: Pushing the Boundaries of the Metaverse**
 
