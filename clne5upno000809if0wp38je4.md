@@ -6,7 +6,7 @@ datePublished: Fri Oct 06 2023 05:23:17 GMT+0000 (Coordinated Universal Time)
 cuid: clne5upno000809if0wp38je4
 slug: free-nft-plot-of-land-in-bluemoon-metaverse
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1696569111515/59451102-57b1-45db-8437-2fc5a3842f9d.gif
-ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1696569774906/86e3d710-3cd0-4c33-9eb3-183d6a3105a4.gif
+ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1696570085014/db0d355e-6f51-42f9-9bd5-24ac10fbf109.png
 tags: crypto, cryptocurrency, web3, nft, metaverse
 
 ---
