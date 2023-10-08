@@ -14,9 +14,9 @@ Welcome to Mallconomy, the innovative platform that is revolutionizing the way w
 
 **Giveaway from Mallconomy:**
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+**🎉Free own virtual shop and Gold NFT🎉** :
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+%[https://app.mallconomy.com/r/astronaut] 
 
 [**What is Mallconomy?**](https://bit.ly/3MCAksk)
 
@@ -28,9 +28,9 @@ One of the main benefits of Mallconomy is its ability to provide a personalized 
 
 **🎉🎊Giveaway from Mallconomy:🎉🎊**
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+**Free own virtual shop and Gold NFT** :
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+%[https://app.mallconomy.com/r/astronaut] 
 
 Another [benefit of Mallconomy](https://bit.ly/3MCAksk) is its ability to provide users with a new way to earn rewards. Our P2E features allow users to earn tokens by playing games, completing tasks, and engaging with the community. These tokens can be used to purchase products or services within the Mallconomy platform or can be exchanged for other cryptocurrencies.
 
@@ -40,9 +40,9 @@ As a user of Mallconomy, you'll have access to a range of rewards and incentives
 
 **🎉🎊Giveaway from Mallconomy:🎉🎊**
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+**Free own virtual shop and Gold NFT** :
 
-**Free own virtual shop and Gold NFT** : [https://bit.ly/3MCAksk](https://bit.ly/3MCAksk)
+%[https://app.mallconomy.com/r/astronaut] 
 
 **Joining Mallconomy:**
 
